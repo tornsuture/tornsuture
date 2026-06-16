@@ -1,16 +1,15 @@
-## Hi there 👋
+         hai, im eli 
+         
+           【BYI】
+           
+⤷ i may be offtab, i prefer w2i    
+⤷ i have ocd, so iwc pls! ^^
+⤷ sorry if i am awkward (｡•́   ̫ •̀｡)
+⤷ c+h only if i am alone !
 
-<!--
-**tornsuture/tornsuture** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+-ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
+        
+      Elementary Physics 
+        Oingo Boingo  
+     0:58 ─〇───── 4:01
+    ⇄   ◃◃   ⅠⅠ   ▹▹   ↻
